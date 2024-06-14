@@ -1,4 +1,4 @@
-Hi 👋 My name is Andrew Volkov
+Hi 👋 My name is Andrew
 ==============================
 
 Tech support and versatile specialist
